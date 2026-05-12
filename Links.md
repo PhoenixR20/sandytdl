@@ -2,6 +2,14 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 15:27 IR
+- 🗜️ [Sleiter_ST_816__Elephant__-_Truck_Unlock_Guide_(The_Highway)_-_Season_15_Part_2___SnowRunner.7z.001](https://github.com/PhoenixR20/sandytdl/raw/main/dl/Sleiter_ST_816__Elephant__-_Truck_Unlock_Guide_%28The_Highway%29_-_Season_15_Part_2___SnowRunner.7z.001) `95.0MB`
+
+- 🗜️ [Sleiter_ST_816__Elephant__-_Truck_Unlock_Guide_(The_Highway)_-_Season_15_Part_2___SnowRunner.7z.002](https://github.com/PhoenixR20/sandytdl/raw/main/dl/Sleiter_ST_816__Elephant__-_Truck_Unlock_Guide_%28The_Highway%29_-_Season_15_Part_2___SnowRunner.7z.002) `81.1MB`
+
+---
+
+
 ### 📅 2026-05-12 15:20 IR
 - 🎬 [SnowRunner_Sleiter_ST816_Elephant_Active_Suspension_upgrade.mp4](https://github.com/PhoenixR20/sandytdl/raw/main/dl/SnowRunner_Sleiter_ST816_Elephant_Active_Suspension_upgrade.mp4) `25.8MB`
 
